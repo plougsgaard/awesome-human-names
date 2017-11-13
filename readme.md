@@ -25,6 +25,7 @@ It's always fun to suggest silly names to pending parents. Why not science it up
 
 - [Dreng](https://ast.dk/born-familie/navne/navnelister/godkendte-fornavne#?gendermask=3&published&name=Dreng)
 - [King](https://ast.dk/born-familie/navne/navnelister/godkendte-fornavne#?gendermask=3&published&name=King)
+- [Buddha](https://ast.dk/born-familie/navne/navnelister/godkendte-fornavne#?gendermask=3&published&name=Buddha)
 
 ### Both
 
