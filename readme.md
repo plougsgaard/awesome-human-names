@@ -23,6 +23,7 @@ It's always fun to suggest silly names to pending parents. Why not science it up
 - [Nugga](https://ast.dk/born-familie/navne/navnelister/godkendte-fornavne#?gendermask=3&published&name=Nugga)
 - [Ganja](https://ast.dk/born-familie/navne/navnelister/godkendte-fornavne#?gendermask=3&published&name=Ganja)
 - [Bisseline](https://ast.dk/born-familie/navne/navnelister/godkendte-fornavne#?gendermask=3&published&name=Bisseline)
+- [Applepie](https://ast.dk/born-familie/navne/navnelister/godkendte-fornavne#?gendermask=3&published&name=Applepie)
 
 ### Boys
 
