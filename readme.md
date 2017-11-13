@@ -30,6 +30,7 @@ It's always fun to suggest silly names to pending parents. Why not science it up
 - [King](https://ast.dk/born-familie/navne/navnelister/godkendte-fornavne#?gendermask=3&published&name=King)
 - [Buddha](https://ast.dk/born-familie/navne/navnelister/godkendte-fornavne#?gendermask=3&published&name=Buddha)
 - [Happydude](https://ast.dk/born-familie/navne/navnelister/godkendte-fornavne#?gendermask=3&published&name=Happydude)
+- [Ude](https://ast.dk/born-familie/navne/navnelister/godkendte-fornavne#?gendermask=3&published&name=Ude)
 
 ### Both
 
