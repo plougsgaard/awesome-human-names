@@ -19,11 +19,12 @@ It's always fun to suggest silly names to pending parents. Why not science it up
 
 - [Git](https://ast.dk/born-familie/navne/navnelister/godkendte-fornavne#?gendermask=3&published&name=Git)
 - [Meme](https://ast.dk/born-familie/navne/navnelister/godkendte-fornavne#?gendermask=3&published&name=Meme)
-
+- [Kong](https://ast.dk/born-familie/navne/navnelister/godkendte-fornavne#?gendermask=3&published&name=Kong)
 
 ### Boys
 
 - [Dreng](https://ast.dk/born-familie/navne/navnelister/godkendte-fornavne#?gendermask=3&published&name=Dreng)
+- [King](https://ast.dk/born-familie/navne/navnelister/godkendte-fornavne#?gendermask=3&published&name=King)
 
 ### Both
 
