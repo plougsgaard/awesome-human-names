@@ -30,6 +30,7 @@ It's always fun to suggest silly names to pending parents. Why not science it up
 ### Both
 
 - [Amen](https://ast.dk/born-familie/navne/navnelister/godkendte-fornavne#?gendermask=3&published&name=Amen)
+- [Min](https://ast.dk/born-familie/navne/navnelister/godkendte-fornavne#?gendermask=3&published&name=Min)
 
 
 ## License
