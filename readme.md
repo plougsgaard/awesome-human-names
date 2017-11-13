@@ -21,7 +21,6 @@ It's always fun to suggest silly names to pending parents. Why not science it up
 - [Meme](https://ast.dk/born-familie/navne/navnelister/godkendte-fornavne#?gendermask=3&published&name=Meme)
 - [Kong](https://ast.dk/born-familie/navne/navnelister/godkendte-fornavne#?gendermask=3&published&name=Kong)
 - [Ganja](https://ast.dk/born-familie/navne/navnelister/godkendte-fornavne#?gendermask=3&published&name=Ganja)
-- [Bisseline](https://ast.dk/born-familie/navne/navnelister/godkendte-fornavne#?gendermask=3&published&name=Bisseline)
 
 ### Boys
 
